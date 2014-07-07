@@ -12,7 +12,7 @@ For example,if you want to <strong>convert Mpeg video files to Mp4 video files</
 <H4><font color="blue">SCREENSHOT</font></H4><BR>
 <a href="http://www.lionsea.com/product_mpegconverterultimate.php"><img src="http://c.lionsea.net//smilelina/mpeg1.png" /></a><br><br>
 <a href="http://www.lionsea.com/download/video/Lionsea_MPEG_Converter_Ultimate_Setup.exe"><img src="http://c.lionsea.net//smilelina/mpeg2.png" /></a><br><br>
-<a href="http://lionsea-mpeg-converter-ultimate.soft112.com/">How to convert MPEG to MP4</a> is not an trouble even you are not familiar to software.With this MPEG Converter, you can convert video to MPEG easily. <br>
+<a href="http://lionsea-mpeg-converter-ultimate.soft112.com/">How to convert MPEG to MP4</a> is not an trouble even you are not familiar to software.With this MPEG Converter, you can convert MPEG video files to Mp4 easily. <br>
 <a href="http://www.lionsea.com/product_mpegconverterultimate.php"><img src="http://c.lionsea.net//smilelina/download_windows.png" /></a>                   <a href="http://lionsea.downhere.hop.clickbank.net/?tid=aipan&tu=convmacdown"><img src="http://c.lionsea.net//smilelina/download_mac.png" /></a>
 
 
